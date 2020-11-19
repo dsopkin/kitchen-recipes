@@ -23,7 +23,7 @@ Enjoy!
 You can make the appropriate gluten/vegan substitutes as needed for the noodles, just know that some disenegrate very easily if left in over the alloted cooking time.
 
 
-## Instructions
+## Directions
 
 1. Heat ~4-6 quarts of water (IDK whatever looks right) to a boil
 
