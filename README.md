@@ -1,5 +1,5 @@
 # Kitchen Recipes
 
-Recipes I've made and open-sourced.
+Recipes I've made or heavily altered.
 
 Bon Appétit!
